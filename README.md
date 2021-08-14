@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @T3GB
-- 👀 I’m interested in game development
+- ✔ -------------------------------------------------------------
 - 📫 How to reach me : Discord : AwaiNTed#9342 Twitter : @Mr_T3GB
 - ❤ I'm retired from development, so don't embarrass me now ❤
 - ❤ معتزل لا تحرجيني حاليا  ❤
